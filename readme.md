@@ -24,5 +24,5 @@ Vivo con mis viejos y tengo un hermano, tambien tengo un perro que se llama otto
 
 ## Que pretendo a futuro
 
-Me gustaria este año entrar como pasante en alguna empresa o poder trabajar con algun emprendimiento que tenga que ver con lo que estoy estudiando. Tambien tengo planeado hacer un par de cursos de programacion web ya que es un tema que me interesa y donde me gustaria poder trabajar.
+Me gustaria este año entrar como pasante en alguna empresa o poder trabajar con algun emprendimiento que tenga que ver con lo que estoy estudiando. Tambien tengo planeado hacer un par de cursos de programación web ya que es un tema que me interesa y donde me gustaria poder trabajar.
 Como objetivo personal me gustaria el año que viene poder mudarme con tres amigos y ya estar establecido con un trabajo que me permita pagar el alquiler. 
