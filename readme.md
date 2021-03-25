@@ -1,8 +1,9 @@
+
 # Presentacion
 
 ## Informacion Personal
 
-![]()
+![IMG-20210228-WA0023](https://user-images.githubusercontent.com/80929611/112501786-4ba2ae80-8d68-11eb-8a3d-d2d065e856ac.jpg)
 - Nombre:Tomas Gomien
 - Legajo:11373
 - Estudiante:Ingenieria en sistemas
